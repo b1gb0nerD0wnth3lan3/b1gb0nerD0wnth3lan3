@@ -15,6 +15,8 @@ byi — i can be dry at times due to burnout , & i make gross jokes . . . im als
 
  [strawpage 1](https://resonance-cascade.straw.page) [strawpage 2](https://asspancakez.straw.page)
 
+ i need to make a new strawpage .. :-(
+
 ![](https://64.media.tumblr.com/ea22703373a72ec940988c4360f42cd3/a8c76c7024ad54c6-0d/s1280x1920/e5c70ebf91e8be96ac9cec9ddc2aea8b8dc518a6.pnj)
 <!--
 **b1gb0nerD0wnth3lan3/b1gb0nerD0wnth3lan3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
