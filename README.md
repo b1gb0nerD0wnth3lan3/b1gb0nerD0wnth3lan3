@@ -14,7 +14,7 @@ info (^_^;)
 
  
 
- [straw1](https://resonance-cascade.straw.page) [straw2](https://bloodstuff.straw.page) [ata](https://godheadsilo.atabook.org/)
+ [straw1](https://resonance-cascade.straw.page) [straw2](https://bloodstuff.straw.page) [ata](https://godheadsilo.atabook.org/) [.cc](https://pronouns.cc/@xanthophyld)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=9zxx0pmsegu9seluh3kb8hgxg&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=d0cb39&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
 
